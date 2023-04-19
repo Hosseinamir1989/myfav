@@ -3,8 +3,6 @@
 2. le ayylmao
 3. AyyLMAOOO
 4. ayyoklmao
-5. ayy pls send help lmaok? 
+5. ayy pls send help lmaok?
 
-### ok
-haha jk
 
